@@ -4,6 +4,8 @@
 
 👉👉 Click to play [Sprunki Retake Human Edition](https://sprunkly.org/game/sprunki-retake-human)
 
+👉👉 Click to play [Sprunki Retake New Human Edition](https://sprunkly.org/game/sprunki-retake-new-human)
+
 This fresh iteration maintains the original gameplay mechanics while introducing a vibrant aesthetic, where each character boasts unique designs and distinct personalities. With lively animations and creative visuals, this edition revitalizes the beloved Sprunki universe.
 
 ## Key Features
